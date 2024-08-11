@@ -2,7 +2,7 @@
 - 👀 I’m interested in music and programming
 - 🌱 I’m currently learning programming language
 - 💞️ I’m looking to collaborate on programming and music
-- 📫 You can reach me at www.instagram.com/@lip.r09
+- 📫 You can reach me at www.instagram.com/lip.r09
 - 😄 Pronouns: lip
 - ⚡ Fun fact: I love music
 
